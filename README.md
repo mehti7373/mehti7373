@@ -35,7 +35,7 @@
 
 ## 📫 Connect With Me
 
-- LinkedIn: linkedin.com/mehti7373
+- LinkedIn: https/www.linkedin.com/in/mehti7373
 
 ---
 
