@@ -35,8 +35,7 @@
 
 ## 📫 Connect With Me
 
-- LinkedIn: (your link here)
-- Email: (your email here)
+- LinkedIn: linkedin.com/mehti7373
 
 ---
 
